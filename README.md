@@ -5,9 +5,9 @@
 - 😄 Pronouns: JG
 - ⚡ Fun fact: I don't pay for FIF UT because i don't have the game.
 - ![Hola](https://blog.desdelinux.net/wp-content/uploads/2017/05/crear-gif-de-im%C3%A1genes.gif)
--
--
--
+
+
+
 #### Aqui la cuestión es que Broly es mejor ¿Z o Super?¿Jamon o queso?¿Agua o Mnster?
 ##### Para empezar pondremos las ventajas y desventajas de cada uno.
 ##### 
