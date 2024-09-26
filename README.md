@@ -13,5 +13,8 @@
 ![barquito](https://i.ytimg.com/vi/JNEBmeZWgI8/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLB4uM8I470qL9LRqiAQ6qCW7funhw)
 ####
 ####
-#### El Broly de Z es mas amenazante, blanco, alto, musculoso y psicopata. Esas son muchas ventajas
+#### El Broly de Z es mas amenazante, blanco, alto, musculoso y psicopata. Esas son muchas ventajas.
 ![si](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcReTOC5ik5l_iDK-3UHfSrVenVK1Pml4XkDIA&s)
+#### Aunque su origen como villano es ser el rival de Goku por haber nacido el mismo dia, y en parte tambien por no dejarle dormir.
+####
+![sio](https://media.tenor.com/-bZH2E0coDIAAAAM/sonicman06-dbz.gif)
