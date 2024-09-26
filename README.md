@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning programing or game roms
 - 😄 Pronouns: JG
 - ⚡ Fun fact: I don't pay for FIF UT because i don't have the game.
-- 
 - ![Hola](inside-out-joy.gif)
 <!---
 JG-Matr0/JG-Matr0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
