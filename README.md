@@ -1,6 +1,6 @@
 # Hi, I’m JG-Matr0
 ##### I’m interested in IT technology
-!(https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQK2dbUbsd33EJoOY8HSJV7l831CMLFTdrtNg&s)
+![Ahora me pongo a escribir en español](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQK2dbUbsd33EJoOY8HSJV7l831CMLFTdrtNg&s)
 - 🌱 I’m currently learning programing or game roms
 - 😄 Pronouns: JG
 - ⚡ Fun fact: I don't pay for FIF UT because i don't have the game.
