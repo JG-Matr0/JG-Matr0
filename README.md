@@ -1,5 +1,5 @@
 # Hi, I’m JG-Matr0
-### I’m interested in IT technology
+##### I’m interested in IT technology
 - 🌱 I’m currently learning programing or game roms
 - 😄 Pronouns: JG
 - ⚡ Fun fact: I don't pay for FIF UT because i don't have the game.
