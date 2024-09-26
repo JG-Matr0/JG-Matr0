@@ -11,3 +11,7 @@
 #### Aqui la cuestión es que Broly es mejor ¿Z o Super?¿Jamon o queso?¿Agua o Mnster?
 ##### Para empezar pondremos las ventajas y desventajas de cada uno.
 ![barquito](https://i.ytimg.com/vi/JNEBmeZWgI8/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLB4uM8I470qL9LRqiAQ6qCW7funhw)
+####
+####
+#### El Broly de Z es mas amenazante, blanco, alto, musculoso y psicopata. Esas son muchas ventajas
+![si](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcReTOC5ik5l_iDK-3UHfSrVenVK1Pml4XkDIA&s)
